@@ -1,4 +1,4 @@
-### Merhaba , Ben LastShot - [Dcw][website] 👋
+### Merhaba , Ben LastShot - [Dcw] [website] 
 
 ## Merhaba , Ben Siber güvenlik , tornavida'cıyım. !
 - 🔭 6 YIllık deneyimimi yeni nesile aktarıyorum !

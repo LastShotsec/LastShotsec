@@ -4,7 +4,7 @@
 - 🔭 6 YIllık deneyimimi yeni nesile aktarıyorum !
 - 🌱 Küçüklükten beri , Sİber güvenliğe meraklı bir insan oldum.🤣
 - 👯 Diğer içerik oluşturucularla ortak çalışmak istiyorum
-- 🥅 2020 Goals: Açık Kaynak projelerine daha fazla katkıda bulunun
+- 🥅 Açık Kaynak projelerine daha fazla katkıda bulunun
 - ⚡ Söz : Beyin taşıması zahmetsiz en büyük silahtır! Yeter ki kullanmasını bilin.
 
 ### Benimle iletişime geç:
